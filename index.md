@@ -3,7 +3,7 @@ GitHub Pages site
 
 # About the pizza
 
-Pizza is amazing food that you can enjoy with your friends and family or around the world. You can eat it at home with yout TV or at the the party.
+Pizza is amazing food that you can enjoy with your friends and family or around the world. You can eat it at home with yout TV or at the the party. Pizza is like a number one food when it come to football and basketball sport.
 
 
 
